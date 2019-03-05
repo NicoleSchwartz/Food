@@ -1,7 +1,7 @@
 alfredo shrimp linguine
 
 Ingredients:
-* alfredo sauce
+* alfredo sauce https://github.com/NicoleSchwartz/Food/blob/master/Sauce_and_Dressing/Alfredo_Sauce.md
 * pasta 3/4-1 lb
 * 1 lb shrimp (peeled and deveined)
 * 1 small onion finely chopped
