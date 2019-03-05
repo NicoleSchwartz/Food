@@ -31,6 +31,7 @@ Notes:
 To try next time:
 https://gist.github.com/warewolf/6cbb76d38537ca4972f7d66135093d27
 Richard's Pizza dough recipe by weight.
+
 | 5 servings  | 1 serving | ingredient|
 | ------------- | ------------- |
 | 500g | 100g | white flour |
@@ -38,6 +39,7 @@ Richard's Pizza dough recipe by weight.
 | 10g | 2g | salt |
 | 7g | 1.4g | dry active yeast |
 | 5g | 1g | sugar |
+
 I make the 5 servings size in a bowl, mix, then divide into five 104.4g dry bags for easy dough making in the future.
 
 Tricks:
