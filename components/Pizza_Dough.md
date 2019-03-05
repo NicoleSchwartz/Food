@@ -12,10 +12,18 @@ Directions
 * If the dough is sticky, add additional flour, 1 tablespoon at a time, until the dough comes together in a solid ball. 
 * If the dough is too dry, add additional water, 1 tablespoon at a time. 
 * Scrape the dough onto a lightly floured surface and gently knead into a smooth, firm ball.
-* Grease a large bowl with the remaining 2 teaspoons olive oil, add the dough, cover the bowl with plastic wrap and put it in a warm area to let it double in size, about 1 hour. 
+* Grease a large bowl with the remaining 2 teaspoons olive oil, add the dough, cover the bowl with plastic wrap and put it in a warm area to let it double in size, about 1 hour. (bulk ferment)
 * Turn the dough out onto a lightly floured surface and divide it into 2 equal pieces. 
 * Cover each with a clean kitchen towel or plastic wrap and let them rest for 10 minutes.
 * Cook’s Note - Using bread flour will give you a much crisper crust. If you can't find bread flour, you can substitute it with all-purpose flour which will give you a chewier crust.
 
 Notes:
 * From Pizza Dough Recipe : Bobby Flay : Food Network https://www.mastercook.com/app/Recipe/WebRecipeDetails?recipeId=2634490 aka https://www.foodnetwork.com/recipes/bobby-flay/pizza-dough-recipe-1921714
+* It turned out too thick and poofy, so my twitter friends had the below suggestions:
+* https://www.kingarthurflour.com/learn/high-altitude-baking.html
+* Did you do a window pane test to make sure the gluten was developed when you first mixed/kneaded the dough? https://lifehacker.com/use-the-windowpane-test-to-tell-if-your-dough-is-proper-1789963601
+* Did you bulk ferment, portion and pre-shape, rest, and then shape the dough?
+* Was the dough overworked?
+* usually use a teaspoon dry yeast to 6 cups of flour for a NY style pizza dough 
+* cold proof it wrapped in plastic in a refrigerator for a minimum of 24 hours.
+* https://www.seriouseats.com/2014/09/how-to-make-and-proof-bread-dough.html
