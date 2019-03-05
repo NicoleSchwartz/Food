@@ -32,7 +32,7 @@ To try next time:
 https://gist.github.com/warewolf/6cbb76d38537ca4972f7d66135093d27
 Richard's Pizza dough recipe by weight.
 
-| 5 servings  | 1 serving | ingredient|
+| 5 servings  | 1 serving | ingredient |
 | ------------- | ------------- |
 | 500g | 100g | white flour |
 | 325g | 65g | 110f water |
