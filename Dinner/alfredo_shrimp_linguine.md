@@ -20,3 +20,6 @@ Directions:
 * add alfredo sauce
 * add pasta
 * garnish if desired
+
+Notes:
+* I did store alfredo, and added 1/2 red pepper, 1/2 orange pepper, 1 zucchini, parsley, paprika and basil, no white wine.
