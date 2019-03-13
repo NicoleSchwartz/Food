@@ -14,6 +14,7 @@ Ingredients
 * smoked paprika (optional)
 * curry (to try)
 * nutmeg and cinnamon (optional)
+* try coco (hint)
 
 Serve Over
 * rice or pasta or corn chips
