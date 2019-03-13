@@ -1,5 +1,5 @@
 Ingredients
-* 1 lb. extra-lean ground beef
+* 1 lb. extra-lean ground beef (or chicken or pork)
 * once large diced onion
 * 1 can (28 fl oz/796 mL) diced tomatoes, undrained
 * 1 can (14 fl oz/398 mL) kidney beans, rinsed
