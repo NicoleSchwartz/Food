@@ -1,9 +1,9 @@
 Ingredients
 * 1 lb. extra-lean ground beef (or chicken or pork)
 * once large diced onion
-* 1 can (28 fl oz/796 mL) diced tomatoes, undrained
 * 1 can (14 fl oz/398 mL) kidney beans, rinsed
 * 1 can (14oz) pinto beans, rinsed
+* 1 can (28 fl oz/796 mL) diced tomatoes, undrained (i think i usually get a smaller can)
 * 2 tablespoons tomato paste
 * 1 (8 oz.) can tomato sauce
 * beef bullion
