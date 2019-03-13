@@ -11,6 +11,9 @@ Ingredients
 * 1 1/2 teaspoons salt
 * 2 1/2 tablespoons chili powder
 * 2 tablespoons ground cumin
+* smoked paprika (optional)
+* curry (to try)
+* nutmeg and cinnamon (optional)
 
 Serve Over
 * rice or pasta or corn chips
@@ -28,3 +31,4 @@ Directions
 
 Notes
 * modify as desired, feel free to swap meats, mix meats, etc
+* i have tried making lapsang souchong tea extra strong and using that in there with the bullion powder, it was meh.
