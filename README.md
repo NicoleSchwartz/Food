@@ -1,19 +1,19 @@
 # Food
 Recipes I don't want to lose
 
-Ideal format
+Ideal format, markdown grouped as below, please place into an appropriate folder, if a folder is missing make a new one.
 
-Ingredients
+# Ingredients
 * list...
 
-Ingredients, Glaze
+# Ingredients, Glaze
 * feel free to have multiple ingredient lists if there is a glaze, marinade, etc
 
-Directions
+# Directions
 * each distinct step
 
-Notes
+# Notes
 * where the recipie came from (website, person), and added flavor or items of note
 
-Pictures
+# Pictures
 * optional, add pictures!
