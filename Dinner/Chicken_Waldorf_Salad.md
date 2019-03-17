@@ -1,4 +1,4 @@
-Ingredients
+## Ingredients
 * Chicken, cooked and cubed
 * Crasins
 * Cellery, sliced
@@ -6,4 +6,4 @@ Ingredients
 * Apples, diced
 * Walnuts, chopped
 * Grapes, sliced
-* Spring Mix
+* Spring Mix if doing as a salad OR mayonnaise if as a "salad" that goes in a sandwich
