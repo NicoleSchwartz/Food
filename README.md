@@ -15,5 +15,10 @@ Ideal format, markdown grouped as below, please place into an appropriate folder
 ## Notes
 * where the recipie came from (website, person), and added flavor or items of note
 
+## Allergen Information
+* Can be gluten-free
+* Can be lactose-free
+* Can be soy-free
+
 ## Pictures
 * optional, add pictures!
