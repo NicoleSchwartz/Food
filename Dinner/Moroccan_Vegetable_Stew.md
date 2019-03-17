@@ -1,4 +1,4 @@
-Ingredients
+## Ingredients
 * 4  Dates
 * 4  Prunes
 * 1 oz  Almonds (~1/3 cup)
@@ -17,7 +17,7 @@ Ingredients
 * salt and pepper
 * Chicken breast
 
-Directions
+## Directions
 * Wash and dry the fresh produce. 
 * Peel and mince the garlic. 
 * Roughly chop the dates and prunes
@@ -35,3 +35,10 @@ Directions
 * In a small pot, heat 1 cup of water and a big pinch of salt to boiling on high. Once the water is boiling, stir in the couscous and turn off the heat. Cover and let stand 5 to 7 minutes, or until all of the water is absorbed. Fluff the finished couscous with a fork.
 * cook diced chicken, stir in stew
 * To plate your dish, place couscous in bowl and ladel stew on top
+
+## Notes
+* From Blue Apron
+
+## Allergen Information
+* Can be lactose-free
+* Can be soy-free
