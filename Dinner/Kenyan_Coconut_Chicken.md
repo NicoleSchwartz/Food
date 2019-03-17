@@ -25,3 +25,8 @@
 
 ## Notes
 * From Saveur - the new classics cookbook
+
+## Allergen Information
+* Can be gluten-free
+* Can be lactose-free
+* Can be soy-free
