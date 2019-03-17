@@ -16,10 +16,10 @@
 * nutmeg and cinnamon (optional)
 * try coco (hint)
 
-## Serve Over
+### Serve Over
 * rice or pasta or corn chips
 
-## Toppings
+### Toppings
 * shreaded cheddar
 * sour cream
 
