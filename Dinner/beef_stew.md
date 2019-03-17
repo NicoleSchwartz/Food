@@ -26,3 +26,8 @@
 
 ## Notes
 * I add random spices each time depending on my mood
+
+## Allergen Information
+* Can be gluten-free
+* Can be lactose-free
+* Can be soy-free
