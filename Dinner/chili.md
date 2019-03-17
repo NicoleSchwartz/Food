@@ -1,4 +1,4 @@
-Ingredients
+## Ingredients
 * 1 lb. extra-lean ground beef (or chicken or pork)
 * once large diced onion
 * 1 can (14 fl oz/398 mL) kidney beans, rinsed
@@ -16,20 +16,25 @@ Ingredients
 * nutmeg and cinnamon (optional)
 * try coco (hint)
 
-Serve Over
+## Serve Over
 * rice or pasta or corn chips
 
-Toppings
+## Toppings
 * shreaded cheddar
 * sour cream
 
-Directions
+## Directions
 * put bullion and seasonings in crock pot
 * cook meat and onion in pan then move to crock pot once they are cooked
 * mix in beans, tomatoes
 * let cook 8+ hours
 * serve over rice or pasta or tortilla chips and top with sour cream and cheese
 
-Notes
+## Notes
 * modify as desired, feel free to swap meats, mix meats, etc
 * i have tried making lapsang souchong tea extra strong and using that in there with the bullion powder, it was meh.
+
+## Allergen Information
+* Can be gluten-free
+* Can be lactose-free
+* Can be soy-free
