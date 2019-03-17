@@ -18,3 +18,8 @@
 
 ## Notes
 * From https://www.allrecipes.com/recipe/241559/honey-mustard-chicken-with-roasted-vegetables/?internalSource=staff%20pick&referringId=1953&referringContentType=Recipe%20Hub
+
+## Allergen Information
+* Can be gluten-free
+* Can be lactose-free
+* Can be soy-free
