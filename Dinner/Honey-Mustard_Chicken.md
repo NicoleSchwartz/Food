@@ -8,7 +8,7 @@
 * 1/2 cup low-sodium chicken broth
 * 1/4 cup white wine
 * 2 tablespoons honey
-* 2 tablespoons whole-grain mustard
+* 2 tablespoons whole-grain mustard (next time add more mustard)
 
 ## Directions
 * Pound chicken to 1/2-inch thickness on a work surface; season with 1/4 teaspoon salt and ground black pepper to taste.
