@@ -31,3 +31,7 @@
 * Can be gluten-free
 * Can be lactose-free
 * Can be soy-free
+
+## Attempt
+* 3-20-19 - 3 cloves garlic, .5 tsp thyme, .25 tsp salt, .25 tsp sugar, 1 lb beef, 1 onion, 1c (3) carrots, 2c (2) potatoes, 1 Guinness, 3c water and 3 beef bullion
+ * Needed more sugar, try 1 tsp, also didn't have tomatoe paste so a little thin, but peeps liked it
