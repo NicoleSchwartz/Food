@@ -1,20 +1,21 @@
 ## Ingredients
 * 1 lb. extra-lean ground beef (or chicken or pork)
-* once large diced onion
+* one large diced onion
 * 1 can (14 fl oz/398 mL) kidney beans, rinsed
-* 1 can (14oz) pinto beans, rinsed
-* 1 can (28 fl oz/796 mL) diced tomatoes, undrained (i think i usually get a smaller can)
+* 1 can (14 fl oz/398 mL) pinto beans, rinsed
+* 1 can (28 fl oz/796 mL) diced tomatoes, undrained
 * 2 tablespoons tomato paste
-* 1 (8 oz.) can tomato sauce
+* 1 (8 oz/236 mL) can tomato sauce
 * beef bullion
 * 4+ cloves garlic
 * 1 1/2 teaspoons salt
 * 2 1/2 tablespoons chili powder
-* 2 tablespoons ground cumin
+* 2 Tablespoons ground cumin
 * smoked paprika (optional)
 * curry (to try)
-* nutmeg and cinnamon (optional)
-* try coco (hint)
+* nutmeg (to try)
+* cinnamon (to try)
+* coco (to try)
 
 ### Serve Over
 * rice or pasta or corn chips
@@ -38,3 +39,7 @@
 * Can be gluten-free
 * Can be lactose-free
 * Can be soy-free
+
+## Attempts
+* 3-21-19 - * 1 lb. beef, 1 large diced onion, 14oz rinsed kidney beans, 14o rinsed pinto beans, 28oz diced tomatoes, 2 heaping Tablespoons tomato paste, 213ml tomatoe sauce (13 ml short), 1 beef bullion, 5 cloves garlic, 1.5 tsp salt, 2 Tbl cumin, 1 Tbl coco, 1 Tbl chilli powder
+* need 1.5 Tbl chili powder
