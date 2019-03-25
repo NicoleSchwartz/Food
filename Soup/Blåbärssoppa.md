@@ -3,7 +3,10 @@
 blueberry soup
 
 ## Ingredients
-* 350 g	(3 cups)	blueberries, fresh or defrosted (or use bilberries if you can)
+* 350 g	(3 cups) blueberries, fresh or defrosted (or use bilberries if you can)
+  ** 1/2-cup serving of fresh blueberries equals approximately 75 grams or 2.6 ounces.
+  ** A pint of fresh blueberries contains roughly 2 cups, or four 1/2-cup servings, of fruit. 
+  ** Freeze Dried Blueberry Powder 1 oz equals about 3/16 cup dry with very low moisture content.
 * 4 tbsp caster (superfine) sugar
 * 700 ml (3 cups)	water
 * 1½ tbsp potato flour (starch)
