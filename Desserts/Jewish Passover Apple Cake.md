@@ -1,6 +1,6 @@
-Jewish Passover Apple Cake
+# Jewish Passover Apple Cake
 
-Ingredients
+## Ingredients
 * 6 room temp. eggs
 * 2 cups white sugar
 * 1 1/2 cups sifted passover cake meal
@@ -11,15 +11,16 @@ Ingredients
 * 1 teaspoon vanilla
 * 1/2 stick of melted butter (.25c)
 
-Directions
+## Directions
 * pre-heat oven to 350F
-* cover apples in melted butter, reserve some to coat pan
+* melt butter in pyrex pan
+* grease glass pyrex pan 9"x13"
+* cut parchment paper to cover bottom and sides of pan
+* cover parchment with butter
+* cover apples in melted butter
 * cream oil, sugar, vanilla and salt
 * beat in 1 egg at a time (mix well, about 1 minute each)
 * add (mix) sifted cake meal (until in ribbons)
-* grease glass pyrex pan 9"x13"
-* cut parchment paper to cover bottom and sides of pan
-* cover parchmnet with leftover butter
 * pour in half the dough
 * cover in a layer of apples
 * Sprinkle half cinnamon sugar mixture
@@ -27,5 +28,6 @@ Directions
 * add another layer of apples, then remaining cinnamon and sugar
 * bake 350F for 55 min (golden brown)
 
-Notes
+## Notes
 * Dec 18 2018 - attempted to substitute all purpose flour + 1.5 tsp baking powder, was not right too moist
+* Mar 24 2019 - manischewitz matzo cake meal http://manischewitz.com/products/cake-meal-canister/ less moist but still moist, also somehow less batter so harder to get full coverage of bottom of pan and top layer, but delicious
