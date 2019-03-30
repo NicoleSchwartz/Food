@@ -5,6 +5,7 @@
 * 1.5 tsp ground tumeric
 * 4 cloves garlic, minced
 * 4 green or red thai chiles, stemmed, seeded, and minced
+* 4 plum tomatoes, cored and minced
 * 1 medium red onion, minced
 * 4 bone in chicken thighs, skin removed
 * 4 bone-in chicken drumsticks, skin removed
