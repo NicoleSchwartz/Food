@@ -2,10 +2,10 @@ Rice Krispies Squares Original Recipe
 
 INGREDIENTS
 
-* 50 ml or 1/4 cup margarine or butter
-* 1.25 L or 5 cups miniature or 40 regular (250 g pkg) marshmallows
+* 50 ml or 1/4 cup margarine or butter (4 Tablespoons) - Alt 6 Tablesppons
+* 1.25 L or 5 cups miniature or 40 regular (250 g pkg) marshmallows - Alt 6c
 * 2 ml or 1/2 tsp vanilla extract (optional)
-* 1.5 L or 6 Cups Rice Krispies* cereal
+* 1.5 L or 6 Cups Rice Krispies* cereal - Alt 6c
 
 DIRECTIONS
 
@@ -27,3 +27,4 @@ YIELD: 24 bars
 
 NOTES
 * From https://www.ricekrispies.ca/en_CA/recipes/squares-original-recipe-recipe.html
+* https://www.twosisterscrafting.com/best-ever-rice-krispie-treat-recipe/
