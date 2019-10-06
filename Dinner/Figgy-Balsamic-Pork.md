@@ -9,12 +9,12 @@
 * 2 tsp rosemary
 * 12 oz | 24 oz pork tenderloin
 * 1 T | 2 Tablespoon fig jam
-* 5 tsp | 10 tspbalsamic vinegar
+* 5 tsp | 10 tsp balsamic vinegar
 * olive oil
 * salt
 * pepper
 * 1/4 c water
-* 1 Tablesppon butter
+* 1 Tablespoon butter
 
 ## Directions:
 ### Prep
@@ -43,8 +43,8 @@
 * a 1 TBSP fig jam, stock concentrate, 1/4 cup water and vinegar
 * stir to combine
 * let simmer until thick and saucy, 2-3 minutes
-* remove pan from heat and add 1 Tablesppon butter, sturring to melt
+* remove pan from heat and add 1 Tablespoon butter, stirring to melt
 * season with salt and pepper
 
 ## Notes:
-* stuff
+* made with plum instead of fig, used 2 bullion cubes and 1 cup water instead of stock and water, and i think i did 10 TBSP instead of 10 tsp vinegar, was tasty though
