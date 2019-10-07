@@ -57,3 +57,4 @@
 * sub boneless, skinless chicken thighs
 * sub bullion cube and 1/2c water for concentrate
 * sub plum jam for fig
+* no rosemary (was out)
