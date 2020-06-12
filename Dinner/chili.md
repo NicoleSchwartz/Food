@@ -15,7 +15,8 @@
 * curry (to try)
 * nutmeg (to try)
 * cinnamon (to try)
-* coco (to try)
+* coco (tried - 1 Tbl)
+* maple syrup (tried 1-2 Tbl)
 
 ### Serve Over
 * rice or pasta or corn chips
@@ -41,5 +42,5 @@
 * Can be soy-free
 
 ## Attempts
-* 3-21-19 - 1 lb beef, 1 large onion, 14oz kidney beans, 14oz pinto beans, 28oz tomatoes, 2 heaping Tbl tomato paste, 213ml tomato sauce (13 ml short), 1 beef bullion, 5 cloves garlic, 1.5 tsp salt, 2 Tbl cumin, 1 Tbl coco, 1 Tbl chilli powder
-* need 1.5 Tbl chili powder
+* 3-21-19 - 1 lb beef, 1 large onion, 14oz kidney beans, 14oz pinto beans, 28oz tomatoes, 2 heaping Tbl tomato paste, 213ml tomato sauce (13 ml short), 1 beef bullion, 5 cloves garlic, 1.5 tsp salt, 2 Tbl cumin, 1 Tbl coco, 1 Tbl chilli powder - went OK needed more chilli powder
+* tried maple syrup, went over well
