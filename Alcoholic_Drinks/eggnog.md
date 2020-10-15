@@ -34,5 +34,8 @@
 * Don't clean mixer bowl, whisk 1c heavy cream and spices to soft peaks (1 min), add to punch bowl
 * Fold in aged eggnog to the punch bowl
 
+## Notes
+* Should makes 1 gallon (16c)
+
 ## Attempt
 * 2020-10-15 - started aged mix - ~3+ large mason jars, kracken, alberta premium
