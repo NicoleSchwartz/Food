@@ -11,12 +11,12 @@
 * 1 1/2 teaspoons salt
 * 2 1/2 tablespoons chili powder
 * 2 Tablespoons ground cumin
+* nutmeg (optional 1.5 tsp)
+* coco (optional 1 Tbl)
+* maple syrup (optional 1-2 Tbl)
 * smoked paprika (optional)
 * curry (to try)
-* nutmeg (to try)
 * cinnamon (to try)
-* coco (tried - 1 Tbl)
-* maple syrup (tried 1-2 Tbl)
 
 ### Serve Over
 * rice or pasta or corn chips
@@ -44,3 +44,5 @@
 ## Attempts
 * 3-21-19 - 1 lb beef, 1 large onion, 14oz kidney beans, 14oz pinto beans, 28oz tomatoes, 2 heaping Tbl tomato paste, 213ml tomato sauce (13 ml short), 1 beef bullion, 5 cloves garlic, 1.5 tsp salt, 2 Tbl cumin, 1 Tbl coco, 1 Tbl chilli powder - went OK needed more chilli powder
 * tried maple syrup, went over well
+* 2020-10-19 ~1 lb beef, 1/2 onion, 14oz kidney beans, 14oz pinto beans, 28oz tomatoes, 2 T tomato paste, 1 beef bullion, 4+ cloves garlic, 1 1/2 teaspoons salt
+* 2 1/2 - 3 T chili powder, 2 T cumin, 1.5 tsp nutmeg 
