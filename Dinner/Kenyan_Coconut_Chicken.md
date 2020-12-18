@@ -34,3 +34,4 @@
 
 ## Attempts
 * 3-30-19 - 1 pablano pepper, 3 vine ripe tomatoes, white onion not red, 12 chicken thigs bone-in and skin on,  3 14-oz. cans coconut milk, forgot salt and pepper, didn't gardnish with cilantro. good, not spicy at all (was worried), next time 2 pablanos, salt and pepper and maybe some other veggie for a) crunch b) more flavor (carrot? broccoli? cauliflower?)
+* 2020-12-18 - used regular peppers (red, orange, yellow)
