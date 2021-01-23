@@ -9,4 +9,4 @@
 boil everything for 12+ hours
 
 ## Attempt
-2021-01-23 - used red wine vinegar, it's supposed to be apple cider vinegar
+2021-01-23 - used red wine vinegar, it's supposed to be apple cider vinegar, also added some old tomatoes
