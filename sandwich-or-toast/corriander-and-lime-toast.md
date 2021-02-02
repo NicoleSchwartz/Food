@@ -12,7 +12,4 @@
 * UK 5:59 - https://www.youtube.com/watch?v=9pdYxUq7keE
 
 ## Attempt
-* Date - Notes
-
-## Pictures
-* optional, add pictures!
+* 2021-02-02 - sub cayenne for chili flakes - tasty!
