@@ -1,7 +1,5 @@
 ## Ingredients, 
 * [sponge cake](https://github.com/NicoleSchwartz/Food/blob/master/Desserts/sponge-cake.md)
-* 1/2 c water
-* ½ cup light rum
 * ½ pint whipping cream
 * crushed peanuts
 * 1 c rum
