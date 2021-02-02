@@ -1,7 +1,7 @@
 ## Ingredients
 * Bread
 * peanut butter
-* corriander
+* corriander (parsley)
 * lime juice
 * red chili flakes
 
