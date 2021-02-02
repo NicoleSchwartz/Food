@@ -2,7 +2,7 @@
 * Smoked herring
 * corn meal
 * banana
-* spices epis (haitian spice http://haitiancooking.com/recipe/haitian-epis/ - https://github.com/NicoleSchwartz/Food/blob/master/Spices/haitian-epis.md)
+* [epis](https://github.com/NicoleSchwartz/Food/blob/master/Spices/haitian-epis.md)
 * water
 * oil
 * onion
