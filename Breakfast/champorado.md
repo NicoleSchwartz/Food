@@ -4,6 +4,7 @@
 * 4 pieces tablea chocolate
 * ½ cup sugar
 * ½ cup evaporated milk
+* optional: tuyo (fish)
 
 ## Directions
 * In a deep pot over medium heat, add water and bring to a boil. Add rice and stir to distribute. Lower heat and continue to cook, stirring occasionally, until rice begins to expand.
@@ -12,6 +13,7 @@
 
 ## Notes
 * https://www.kawalingpinoy.com/champorado/
+* https://youtu.be/hwxmHRrlMwY?t=209
 
 ## Attempt
 * Date - Notes
