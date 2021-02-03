@@ -1,6 +1,6 @@
 ## Ingredients
 * Bread
-* Sour Cream / Yogurt
+* Sour Cream / Greek Yogurt
 * Ham
 * salt
 
@@ -13,7 +13,7 @@
 * Austria - https://www.youtube.com/watch?v=9pdYxUq7keE
 
 ## Attempt
-* Date - Notes
+* 2021-02-03 - used greek yogurt, and i liked it!
 
 ## Pictures
 * optional, add pictures!
