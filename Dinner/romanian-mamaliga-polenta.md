@@ -1,10 +1,15 @@
-## Ingredients
+## Ingredients, polenta
 * Water - 1.6L
 * Soft Polenta: Cornmeal - 400g; Water - 1.6L; Salt - 1tsp ; Butter or olive oil - 1tbsp
 * Medium Polenta: Cornmeal - 400g; Water - 1.5L; Salt - 1tsp; Butter or olive oil - 1tbsp
 * Stiff Polenta: Cornmeal - 500g; Water - 1.5L; Salt - 1tsp; Butter or olive oil - 1tbsp
 
-## Directions
+## Ingredients, mamaliga
+* Sheep Cheese
+* Sour Cream
+* Egg
+
+## Directions, polenta
 * To make it start with some boiling water, Water ratio for polenta is usually use 4 times of water to cornmeal but I always do 3-time water to cornmeal and it gives a nice sturdy #polenta.
 * First Add some salt for taste. Then simply add the cornmeal In the water. 
 * cooking half a kilo which is half of this packet. 
@@ -15,8 +20,13 @@
 * That’s it than just simply take it out of the pan and as you can see how sturdy this polenta is. 
 * If you want a thinner version of polenta just choose the different water ratio.
 
+## Directions, mamaliga
+* prepare polenta
+* serve with soft boiled egg, crumbled sheep cheese, and sour cream
+
 ## Notes
-* https://www.youtube.com/watch?v=L0vQEBSmrgA&t=0s
+* https://www.youtube.com/watch?v=L0vQEBSmrgA&t=0s polenta
+* https://www.youtube.com/watch?v=hwxmHRrlMwY mamaliga
 
 ## Attempt
 * Date - Notes
