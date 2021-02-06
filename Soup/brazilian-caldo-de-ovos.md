@@ -1,21 +1,21 @@
 ## Ingredients
- • 2 tablespoons Worcestershire sauce
- • ½ yellow onion, chopped
- • 2 tablespoons chopped bell pepper (any color) 
- • 4 garlic cloves, minced
- • 1 tablespoon minced biquinho chili pepper (or another mild chili pepper) 
- • ¾ pound (350 grams) lean ground beef 
- • 1 tablespoon extra-virgin olive oil 
- • 2 beef bouillon cubes, crumbled
- • 1 teaspoon urucum (or paprika)
- • 1 teaspoon ground cumin
- • ½ teaspoon ground black pepper 
- • 4 tablespoons tomato extract
- • 8 cups (2 liters) water
- • 4-6 eggs
- • 1 cup (125 grams) fine grind cassava flour (sub: corn meal)
- • Juice from ½ of a lime 
- • 1 handful chopped cilantro (or parsley)
+ * 2 tablespoons Worcestershire sauce
+ * ½ yellow onion, chopped
+ * 2 tablespoons chopped bell pepper (any color) 
+ * 4 garlic cloves, minced
+ * 1 tablespoon minced biquinho chili pepper (or another mild chili pepper) 
+ * ¾ pound (350 grams) lean ground beef 
+ * 1 tablespoon extra-virgin olive oil 
+ * 2 beef bouillon cubes, crumbled
+ * 1 teaspoon urucum (or paprika)
+ * 1 teaspoon ground cumin
+ * ½ teaspoon ground black pepper 
+ * 4 tablespoons tomato extract
+ * 8 cups (2 liters) water
+ * 4-6 eggs
+ * 1 cup (125 grams) fine grind cassava flour (sub: corn meal)
+ * Juice from ½ of a lime 
+ * 1 handful chopped cilantro (or parsley)
 
 ## Directions
 * Mix the Worcestershire sauce, onion, bell pepper, garlic and biquinho pepper with the ground beef in a bowl and set aside. 
