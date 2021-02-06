@@ -11,7 +11,7 @@
 * Japan - https://www.youtube.com/watch?v=0tZSXMjxkyQ&t=2s
 
 ## Attempt
-* Date - Notes
+* 2021-02-05 i used seaweed flakes not nori and fish flakes not slice of fish - meh
 
 ## Pictures
 * optional, add pictures!
