@@ -13,7 +13,7 @@
 * USA https://youtu.be/a4XE3H5YQjs?t=429
 
 ## Attempt
-* 2021-02-03 - it was fine, not exciting, not bad, very messy though
+* 2021-02-03 - it was fine, not exciting, not bad, very messy though. i also made it hard not runny
 
 ## Pictures
 * optional, add pictures!
