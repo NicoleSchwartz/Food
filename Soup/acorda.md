@@ -18,6 +18,8 @@
 * Salt
 * Pepper
 
+Made 4 bowls of soup
+
 ## Directions
 * In a mortar, crush the garlic with a pestle.
 * Add the cilantro leaves and olive oil gradually to form a paste.
