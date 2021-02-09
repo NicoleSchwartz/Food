@@ -27,6 +27,7 @@
 ## Notes
 * https://www.youtube.com/watch?v=L0vQEBSmrgA&t=0s polenta
 * https://www.youtube.com/watch?v=hwxmHRrlMwY mamaliga
+* see how many g 1/2 c cornmeal is and adjust above (estimate 1/2c = single serving per internet search)
 
 ## Attempt
 * Date - Notes
