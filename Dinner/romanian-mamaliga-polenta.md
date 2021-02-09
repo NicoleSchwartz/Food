@@ -1,8 +1,14 @@
 ## Ingredients, polenta
 * Water - 1.6L
-* Soft Polenta: Cornmeal - 400g; Water - 1.6L; Salt - 1tsp ; Butter or olive oil - 1tbsp
-* Medium Polenta: Cornmeal - 400g; Water - 1.5L; Salt - 1tsp; Butter or olive oil - 1tbsp
-* Stiff Polenta: Cornmeal - 500g; Water - 1.5L; Salt - 1tsp; Butter or olive oil - 1tbsp
+* Cornmeal
+* 1 tsp salt
+* 1 Tbsp butter or olive oil
+
+Soft Polenta: Cornmeal - 400g; Water - 1.6L
+
+Medium Polenta: Cornmeal - 400g; Water - 1.5L
+
+Stiff Polenta: Cornmeal - 500g; Water - 1.5L
 
 ## Ingredients, mamaliga
 * Sheep Cheese
