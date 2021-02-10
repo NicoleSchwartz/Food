@@ -36,6 +36,7 @@ Made 4 bowls of soup
 
 ## Attempt
 * 2021-02-08 - made with cilantro, used boullion (chicken) instead of water. reminded me of egg drop soup. was tasty with the bread and egg, boring on it's own.
+* 2021-02-10 - leftover with no egg, boring
 
 ## Pictures
 * optional, add pictures!
