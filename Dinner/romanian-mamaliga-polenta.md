@@ -32,7 +32,7 @@
 * see how many g 1/2 c cornmeal is and adjust above (estimate 1/2c = single serving per internet search)
 
 ## Attempt
-* 2021-02-09 - 200g cornmeal to 3 and 1/3 c water - ended up adding some more water next time maybe 3.5? 3.75? - it was tasty, but bland, boring - perhaps a better breakfast or lunch?
+* 2021-02-09 - 200g cornmeal to 3 and 1/3 c water - ended up adding some more water next time maybe 3.5? 3.75? - it was tasty, but bland, boring - perhaps a better breakfast or lunch? 200g way too much for 2 people
 
 ## Pictures
 * optional, add pictures!
