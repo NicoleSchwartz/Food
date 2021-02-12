@@ -1,18 +1,21 @@
 ## Ingredients, ravioli
 * 2 T butter
 * 2 medium leeks, washed, white parts only thinly sliced
-* 1 garlic clove, minced
+* 1 garlic clove, minced (i use 2)
 * 1 15-oz can pumpkin puree
 * 1/4 c goat cheese, crumbled
 * 3 T olive oil
 * salt and pepper
-* wonton wrappers, cut into quarters
+* wonton wrappers, cut into quarters (I used full wrappers uncut and 1 tsp barely fit)
+* idea: try nutmeg, ginger, cinnamon, clove and allspice
 
 ## Ingredients, sauce
 * 6 T butter
 * 1/2 tsp salt
 * 1 tsp sage, chopped
 * 2 T heavy cream
+* idea: add flour
+* idea: add peacans
 
 ## Ingredients, toppings
 * 1 c arugula
@@ -38,12 +41,7 @@ meanwhile
 * serve with arugula, cheese and pecans
 
 ## Notes
-* where the recipie came from (website, person), and added flavor or items of note
-
-## Allergen Information
-* Can be gluten-free
-* Can be lactose-free
-* Can be soy-free
+* 
 
 ## Attempt
 * 2021-02-11 - fried wontons b/c didn't seal well and boiling would have resulted in soup - too crispy, hubs didn't think they were pumpkin-y enough. Sauce was very thin. used 2 cloves garlic. Next time might bake the wontons, and might flour the sauce so it's thicker, might also put peacans in the sauce. Also probably more sage. might also consider nutmeg, ginger, cinnamon, clove and allspice.
