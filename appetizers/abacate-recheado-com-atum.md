@@ -26,10 +26,12 @@ Tuna stuffed avacado
 * 1 tablespoons shredded coconut , lightly roasted (to garnish)
 
 ## Directions
+* Whip the cream
 * Cut avocados in half lengthwise and remove the pits.
 * With a spoon, remove the flesh gently, making sure not to pierce the skin.
 * Place the avocado flesh in a bowl and mash. Mix with tuna, whipped cream, spicy tomato sauce and grated coconut.
-* Season with salt and black pepper then use the mixture to fill the avocados.
+* Season with spices
+* use the mixture to fill the avocado skins.
 * Drizzle with lemon juice and garnish with a little toasted coconut.
 
 ## Notes
