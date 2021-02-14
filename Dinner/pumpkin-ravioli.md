@@ -45,7 +45,7 @@ meanwhile
 
 ## Attempt
 * 2021-02-11 - fried wontons b/c didn't seal well and boiling would have resulted in soup - too crispy, hubs didn't think they were pumpkin-y enough. Sauce was very thin. used 2 cloves garlic. Next time might bake the wontons, and might flour the sauce so it's thicker, might also put peacans in the sauce. Also probably more sage. might also consider nutmeg, ginger, cinnamon, clove and allspice.
-* 2021-02-13 - started sauce with roux (1 TB butter to 2 TB flour) this time and baked them in a 400F oven ~7-8 min, there were better, but still would prefer pasta to wonton wrapper and think next time a bit of pumpkin spice. i froze a bunch and need to make more and freeze more out of the remianing filling.
+* 2021-02-13 - started sauce with roux (1 TB butter to 2 TB flour) this time and baked them in a 400F oven ~7-8 min, there were better, but still would prefer pasta to wonton wrapper and think next time a bit of pumpkin spice. i froze a bunch and need to make more and freeze more out of the remianing filling. I also put hella lot more fresh sage (like 3 Tb+) in.
 
 ## Pictures
 * optional, add pictures!
