@@ -13,7 +13,7 @@
 * Iran - https://www.youtube.com/watch?v=0O4MEg_WUeA&t=75s
 
 ## Attempt
-* Date - Notes
+* 2021-02-15 - ended up making a salad not a toast but super tasty anyway
 
 ## Pictures
 * optional, add pictures!
