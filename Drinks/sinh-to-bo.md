@@ -16,7 +16,7 @@ Vietnamese Avocado Smoothie Recipe (Sinh Tố Bơ)
 * https://www.hungryhuy.com/avocado-smoothie/
 
 ## Attempt
-* Date - Notes
+* 2021-02-20 - DELICIOUS
 
 ## Pictures
 * optional, add pictures!
