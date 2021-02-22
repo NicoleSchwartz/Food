@@ -41,4 +41,4 @@ Tuna stuffed avacado
 * 2021-02-13 - made as modified above, original IMO called for too much lemon and whipped cream - even half was a huge portion and i couldn't finish it all in one meal
 
 ## Pictures
-* optional, add pictures!
+* https://photos.app.goo.gl/ygsB7PFWofRYatTU9
