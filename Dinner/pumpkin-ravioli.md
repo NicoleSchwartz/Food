@@ -48,4 +48,4 @@ meanwhile
 * 2021-02-13 - started sauce with roux (1 TB butter to 2 TB flour) this time and baked them in a 400F oven ~7-8 min, there were better, but still would prefer pasta to wonton wrapper and think next time a bit of pumpkin spice. i froze a bunch and need to make more and freeze more out of the remianing filling. I also put hella lot more fresh sage (like 3 Tb+) in.
 
 ## Pictures
-* optional, add pictures!
+* https://photos.google.com/share/AF1QipNMztbqPGq0nQ8JEMEws1v7VU2tVHjOpjTaIJsUP5thIcGY2lMPihGSdeQ42WSIAA/photo/AF1QipN8tDsbdYGnN1i4ya_YBTncvG1L0Ikbzl7ibMlB?key=eGhTa0I4M3B6c2tkRzVmZHdLOVlqWG16VVVhTTRB
