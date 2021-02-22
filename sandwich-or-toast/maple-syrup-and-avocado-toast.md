@@ -17,4 +17,5 @@
 * 2021-02-09 - added maple, salt, paprika and cayenne - very much liked it!
 
 ## Pictures
-* optional, add pictures!
+* https://photos.google.com/share/AF1QipNMztbqPGq0nQ8JEMEws1v7VU2tVHjOpjTaIJsUP5thIcGY2lMPihGSdeQ42WSIAA/photo/AF1QipNFRHrosRMBZslDwnPyMFBNeU1rffBn18otimAo?key=eGhTa0I4M3B6c2tkRzVmZHdLOVlqWG16VVVhTTRB
+* https://photos.google.com/share/AF1QipNMztbqPGq0nQ8JEMEws1v7VU2tVHjOpjTaIJsUP5thIcGY2lMPihGSdeQ42WSIAA/photo/AF1QipOVXkQ472gn6Lr4RPrB820jQLqpHxBsyNIaATqQ?key=eGhTa0I4M3B6c2tkRzVmZHdLOVlqWG16VVVhTTRB
