@@ -19,4 +19,6 @@
 * Date - Notes
 
 ## Pictures
-* optional, add pictures!
+* https://photos.google.com/share/AF1QipNMztbqPGq0nQ8JEMEws1v7VU2tVHjOpjTaIJsUP5thIcGY2lMPihGSdeQ42WSIAA/photo/AF1QipOjrp6qs-Y_JtknynWokg8Mplq4i4lPWJBAjIBW?key=eGhTa0I4M3B6c2tkRzVmZHdLOVlqWG16VVVhTTRB
+* https://photos.google.com/share/AF1QipNMztbqPGq0nQ8JEMEws1v7VU2tVHjOpjTaIJsUP5thIcGY2lMPihGSdeQ42WSIAA/photo/AF1QipPV-Gga526RAeGvk9DueuVcsc38yIpSH8_kGm08?key=eGhTa0I4M3B6c2tkRzVmZHdLOVlqWG16VVVhTTRB
+* https://photos.google.com/share/AF1QipNMztbqPGq0nQ8JEMEws1v7VU2tVHjOpjTaIJsUP5thIcGY2lMPihGSdeQ42WSIAA/photo/AF1QipNIA8pjbR6-D5eBOSGYn1Jvufhx0y8U5TSdx5jJ?key=eGhTa0I4M3B6c2tkRzVmZHdLOVlqWG16VVVhTTRB
