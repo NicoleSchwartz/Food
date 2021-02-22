@@ -18,4 +18,4 @@
 * 2021-02-21 - modified from original (in notes) based on what i had that needed to get used, was tasty!
 
 ## Pictures
-* optional, add pictures!
+* https://photos.app.goo.gl/qoYnG91mxx3nY3M17
