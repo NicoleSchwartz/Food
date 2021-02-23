@@ -30,7 +30,7 @@ You can add thinly sliced carrots, edamame beans or split peas, thinly sliced pe
 * https://www.crunchycreamysweet.com/thai-peanut-noodles/
 
 ## Attempt
-* Date - Notes
+* 2021-02-22 - served with chicken, added 1/2c pb & used regular onions (sauted) instead of green onions - enjoyed it
 
 ## Pictures
 * optional, add pictures!
