@@ -8,12 +8,14 @@
 *   * 1 bay leaf
 *   * 1/8 tsp turmeric
 *   * 1/3 tsp salt
-*   * cloves
+*   * cloves (1 Tbsp?)
 * vegies
 *   * 1 onion
 *   * 1 green chili
 *   * 1 tomato
-*   * carrots, beans, potatoes (optional)
+*   * carrots (optional)
+*   * beans (i used chickpeas, optional)
+*   * potatoes (optional)
 * 3-4 c water
 * optional: yogurt / sour cream
 * optional: seasme
@@ -35,7 +37,7 @@
 * https://www.indianhealthyrecipes.com/dal-khichdi-recipe/
 
 ## Attempt
-* Date - Notes
+* 2021-03-04 - i doubled the daal and rice for 6 people i had extra probably could have gone 3/4 and 3/4 - i used carrots and chickpeas - i cooked it 20 minutes it probably could have used a little longer
 
 ## Pictures
 * optional, add pictures!
