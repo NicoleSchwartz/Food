@@ -33,7 +33,7 @@
 * https://cooking.nytimes.com/recipes/1012384-indonesian-chicken-soup-with-noodles-turmeric-and-ginger-soto-ayam
 
 ## Attempt
-* Date - Notes
+* 2021-02-26 - didn't bother to quarter chicken, i also added cellery in to the soup
 
 ## Pictures
 * optional, add pictures!
