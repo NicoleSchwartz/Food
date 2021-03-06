@@ -20,7 +20,8 @@
 * Remove from pan after thoroughly cooled, and if desired, sprinkle the top with brandy or rum and powdered sugar.
 
 ## Notes
-* 
+* above from printed cookbook
+* alternate different recipie doesn't match above - https://anitalianinmykitchen.com/sponge-cake/ 
 
 ## Attempt
 * Date - Notes
