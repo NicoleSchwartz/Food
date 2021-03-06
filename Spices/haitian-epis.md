@@ -6,7 +6,7 @@
 * 2 Green Bell Peppers
 * 3 scallion stalks
 * 2 chicken bouillon cubes
-* 5 Sprigs of Thyme
+* 5 Sprigs of Thyme (I guessed at 2 Tbsp dried)
 * 3 Heads of garlic
 * 2 tbs of Lime juice or 1 lime
 * 1/4 cup of Extra Virgin Olive Oil
@@ -20,3 +20,4 @@
 
 ## Notes
 * http://haitiancooking.com/recipe/haitian-epis/
+* used apple cider vinegar b/c unspecified
