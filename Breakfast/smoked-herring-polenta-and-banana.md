@@ -28,7 +28,7 @@
 * popular for breakfast, usually served with avacado this recipie substitues banana
 
 ## Attempt
-* Date - Notes
+* 2021-03-06 - weird but good! nothing had measurements so just wing'd it all - i also made the polenta seporate and let everyone stoir in the amount they wanted
 
 ## Pictures
 * optional, add pictures!
