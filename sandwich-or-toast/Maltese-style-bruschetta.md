@@ -30,7 +30,8 @@ Maltese-style bruschetta (hobż biż-żejt)
 * To assemble, cut the rolls in half and spread the tomato paste evenly over both sides. Drizzle the bases with olive oil, then top with the white anchovies, olive cheeks, pickled onions, ricotta, capers and parsley. Season with salt and pepper and drizzle generously with olive oil. Place the bread tops on and serve immediately.
 
 ## Notes
-* where the recipie came from (website, person), and added flavor or items of note
+* https://www.sbs.com.au/food/recipes/maltese-style-bruschetta-hobz-biz-zejt
+* https://www.youtube.com/watch?v=ldBto02tp7Q
 
 ## Attempt
 * Date - Notes
