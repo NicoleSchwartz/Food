@@ -30,7 +30,7 @@
 * Recipe by Chef Christiano Campos - https://www.youtube.com/watch?v=0tZSXMjxkyQ&t=2s
 
 ## Attempt
-* Date - Notes
+* 2021-03-10 - tasty! but i think i would have broken up the eggs more
 
 ## Pictures
 * optional, add pictures!
