@@ -30,7 +30,7 @@
 * Recipe by Chef Christiano Campos - https://www.youtube.com/watch?v=0tZSXMjxkyQ&t=2s
 
 ## Attempt
-* 2021-03-10 - tasty! but i think i would have broken up the eggs more
+* 2021-03-10 - tasty! but i think i would have broken up the eggs more. way more than 4 people dinner servings
 
 ## Pictures
 * optional, add pictures!
