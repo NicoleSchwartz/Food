@@ -24,7 +24,7 @@ Soft Dinner Rolls Recipe
 ## Notes
 * Dough can also be kneaded by hand, knead for about 10 minutes or until dough is soft, smooth and elastic.
 * For room temperature, remove the ingredients from the fridge 30-45 minutes before using.
-* https://allthingsbread.com/about-me-rosemary-molloy/
+* https://allthingsbread.com/about-me-rosemary-molloy/ https://allthingsbread.com/dinner-rolls-recipe/
 
 ## Attempt
 * Date - Notes
