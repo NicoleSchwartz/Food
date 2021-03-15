@@ -21,7 +21,7 @@
 * https://www.youtube.com/watch?v=pTamtrKjKPg&t=0s
 
 ## Attempt
-* Date - Notes
+* 2021-03-14 - very salty - suspect broth's fault, could have used a bit of shredded chicken and i could have broken the pasta smaller, overall tasty
 
 ## Pictures
 * optional, add pictures!
