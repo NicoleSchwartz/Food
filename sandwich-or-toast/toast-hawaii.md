@@ -18,7 +18,7 @@
 * Germany - https://www.youtube.com/watch?v=NbxK1dVRvVs
 
 ## Attempt
-* Date - Notes
+* 2021-03-21 - tastes like ham and pineapple pizza, the cherry is too sweet. like it. i also over buttered go lightly
 
 ## Pictures
 * optional, add pictures!
