@@ -1,0 +1,12 @@
+{
+  "summary": {
+    "title": "Example Threat Model",
+    "owner": "AmazonV",
+    "description": "My food"
+  },
+  "detail": {
+    "contributors": [],
+    "diagrams": [],
+    "reviewer": "CircuitSwan"
+  }
+}
