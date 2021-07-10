@@ -45,6 +45,14 @@ Sunday:
   * 1/4 teaspoon black pepper
 
 Monday:
+
+Tuesday:
+* Sushi (takeout)
+
+Wednesday:
+
+
+Thursday:
 * cold pasta salad
   * https://thewholecook.com/easy-homemade-italian-dressing/
   * tomato
@@ -56,13 +64,16 @@ Monday:
   * 3/4 cup kalamata olives, sliced
   * 1/2 cup fresh parsley, chopped (i have basil...)
 
-Tuesday:
-* Sushi (takeout)
-
-Weddnesday:
-Thursday:
 Friday: (must be pre-prepped b/c TDI)
-Saturday: 
+* bean salad
+* cucumber salad
+* hard boiled eggs
+
+Saturday: (must be pre-prepped b/c TDI)
+* bean salad
+* cucumber salad
+* hard boiled eggs
+
 Sunday:
 Monday:
 Tuesday:
