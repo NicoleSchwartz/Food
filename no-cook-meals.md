@@ -26,6 +26,9 @@ Saturday:
   * ¾ cup breadcrumbs
 
 Sunday:
+* chicken sandwiches (bread, chicken, tomatoe, lettuce, etc)
+
+Monday:
 * https://www.shelikesfood.com/mediterranean-chopped-salad-pitas/
   * 1 small head romaine lettuce, chopped
   * 1 (15 ounce) can chickpeas, drained and rinsed (sub green english peas)
@@ -43,8 +46,6 @@ Sunday:
   * 1/2 teaspoon dried Italian seasoning
   * 1/2 teaspoon salt
   * 1/4 teaspoon black pepper
-
-Monday:
 
 Tuesday:
 * Sushi (takeout)
