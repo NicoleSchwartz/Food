@@ -45,7 +45,20 @@ Sunday:
   * 1/4 teaspoon black pepper
 
 Monday:
+* cold pasta salad
+  * https://thewholecook.com/easy-homemade-italian-dressing/
+  * tomato
+  * broccoli
+  * corn
+  * parmesian
+  * 1 pound uncooked pasta
+  * 1 lb. salami or summer sausage, cut into cubes
+  * 3/4 cup kalamata olives, sliced
+  * 1/2 cup fresh parsley, chopped (i have basil...)
+
 Tuesday:
+* Sushi (takeout)
+
 Weddnesday:
 Thursday:
 Friday: (must be pre-prepped b/c TDI)
@@ -65,7 +78,6 @@ Tuesday:
   * https://spicedblog.com/thai-peanut-wraps/#_a5y_p=5563271 
   * https://jessicainthekitchen.com/fresh-spring-rolls-with-peanut-ginger-sauce/
 * https://www.healthyseasonalrecipes.com/no-cook-zucchini-noodles-pesto/
-* cold pasta salad
 * https://www.foodiecrush.com/easy-vietnamese-noodle-salad/?utm_campaign=tailwind_tribes&utm_content=tribes&utm_medium=social&utm_source=pinterest&utm_term=284925628_7678292_156928
 * https://www.foodiecrush.com/italian-chicken-wrap/
 * https://www.thegraciouspantry.com/clean-eating-italian-chopped-salad-recipe/
