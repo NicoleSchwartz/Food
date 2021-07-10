@@ -10,12 +10,12 @@ Saturday:
   * 3 c. cubed seedless watermelon
   * 1 c. medium cucumber, chopped
   * 1 c. crumbled feta
-  * 1/2 c. red onion, thinly sliced
+  * 1/2 c. red onion, thinly sliced (sub shallot)
   * 1/2 c. coarsely chopped mint OR 1/2 cup fresh basil chiffonade (optional)
   * Spring Mix
   * arugula
-  * 3 cups strawberries sliced
-  * 1/4 cup sliced almonds
+  * 3 cups strawberries sliced (skip)
+  * 1/4 cup sliced almonds (sub walnut)
   * 1 teaspoon sugar or honey, plus more to taste
 * http://www.katherinemartinelli.com/blog/2012/baked-stuffed-squash-blossoms/ (putting toaster outside and baking not frying)
   * 1 cup ricotta
@@ -28,14 +28,14 @@ Saturday:
 Sunday:
 * https://www.shelikesfood.com/mediterranean-chopped-salad-pitas/
   * 1 small head romaine lettuce, chopped
-  * 1 (15 ounce) can chickpeas, drained and rinsed
+  * 1 (15 ounce) can chickpeas, drained and rinsed (sub green english peas)
   * 1 tomato, diced
   * 1 small cucumber, diced
   * 1 small red pepper, diced (skip)
-  * 1/2 small red onion, diced
+  * 1/2 small red onion, diced (skip)
   * 3/4 cup chopped kalamata olives
   * 3/4 cup feta crumbles
-  * 2 tablespoons chopped fresh dill
+  * 2 tablespoons chopped fresh dill (skip or sub basil)
   * Pita bread, for serving
   * DRESSING:
   * 1/4 cup olive oil
