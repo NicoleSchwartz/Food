@@ -26,7 +26,7 @@ Saturday:
   * ¾ cup breadcrumbs
 
 Sunday:
-* chicken sandwiches (bread, chicken, tomatoe, lettuce, etc)
+* MIL making steak
 
 Monday:
 * https://www.shelikesfood.com/mediterranean-chopped-salad-pitas/
@@ -48,12 +48,6 @@ Monday:
   * 1/4 teaspoon black pepper
 
 Tuesday:
-* Sushi (takeout)
-
-Wednesday:
-
-
-Thursday:
 * cold pasta salad
   * https://thewholecook.com/easy-homemade-italian-dressing/
   * tomato
@@ -64,6 +58,12 @@ Thursday:
   * 1 lb. salami or summer sausage, cut into cubes
   * 3/4 cup kalamata olives, sliced
   * 1/2 cup fresh parsley, chopped (i have basil...)
+
+Wednesday:
+* Sushi (takeout)
+
+Thursday:
+* chicken sandwiches (bread, chicken, tomatoe, lettuce, etc)
 
 Friday: (must be pre-prepped b/c TDI)
 * bean salad
