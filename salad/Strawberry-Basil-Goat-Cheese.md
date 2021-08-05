@@ -5,12 +5,15 @@ Strawberry, Basil and Goat Cheese Salad with Balsamic Drizzle
 * 2 ounces crumbled goat cheese (about ½ cup)
 * ¼ cup chopped fresh basil, plus a few small basil leaves for garnish
 * ½ teaspoon Maldon flaky sea salt or a scant ¼ teaspoon fine sea salt
-* Optional: Add pecans or other nuts
+* Optional: Add pecans, walnut, pistacio or other nuts
+* optional: lettuce (arrugala, spinach, spring mix)
 
 ## Ingredients, dressing
 * Optional: 1 to 2 teaspoons honey or maple syrup, to taste
 * 1 tablespoon extra-virgin olive oil
 * 1 tablespoon thick balsamic vinegar
+OR
+* orange poppyseed dressing
 
 ## Directions
 * wash and dice ingredients, mix, top with dressing and salt
