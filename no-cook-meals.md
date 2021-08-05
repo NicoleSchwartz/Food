@@ -12,6 +12,7 @@ Note: I have a burn ban in place, and we do not have an instapot, grill or sous 
 
 ## Dinner Ideas
 
+* https://github.com/NicoleSchwartz/Food/blob/master/salad/Watermelon-Salad-with-Feta.md
 * Strawberry salads with feta With a light orange poppyseed dressing and crushed walnuts.
 * cucumber and onion salad. Sliced cucumber and onion in 1/2 and 1/2 water and vinegar, with a little sugar and salt. Chill overnight. Sprinkle with black pepper, or Cavenders for that real from the Ozarks flavor.
 * gazpacho https://www.foodiecrush.com/traditional-gazpacho-recipe/
