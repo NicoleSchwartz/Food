@@ -5,7 +5,7 @@
 * 1 c. crumbled feta
 * 1/2 c. coarsely chopped mint OR 1/2 cup fresh basil chiffonade (optional)
 * Spring Mix (or arugula)
-* 3 cups strawberries sliced
+* optional: 3 cups strawberries sliced
 * 1/4 cup sliced almonds (sub walnut)
 
 ## Ingredients, Dressing
