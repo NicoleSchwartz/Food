@@ -13,7 +13,7 @@ Note: I have a burn ban in place, and we do not have an instapot, grill or sous 
 ## Dinner Ideas
 
 * https://github.com/NicoleSchwartz/Food/blob/master/salad/Watermelon-Salad-with-Feta.md
-* Strawberry salads with feta With a light orange poppyseed dressing and crushed walnuts.
+* https://github.com/NicoleSchwartz/Food/blob/master/salad/Strawberry-Basil-Goat-Cheese.md
 * cucumber and onion salad. Sliced cucumber and onion in 1/2 and 1/2 water and vinegar, with a little sugar and salt. Chill overnight. Sprinkle with black pepper, or Cavenders for that real from the Ozarks flavor.
 * gazpacho https://www.foodiecrush.com/traditional-gazpacho-recipe/
 * cucumbers sliced or diced, carrot slivers, green onions sliced, sesame seeds with peanut dressing. (Peanut butter, mirin if unsweet or vinegar if sweetened pb, sambal garlic chili paste. Mix until liquid).
@@ -50,12 +50,6 @@ List of food ideas
 * https://tasty.co/article/jesseszewczyk/no-cook-summer-recipes
 
 ### Menu
-
-Saturday:
-* https://github.com/NicoleSchwartz/Food/blob/master/Watermelon-Salad-with-Feta.md
-
-Sunday:
-* MIL making steak on her grill
 
 Monday:
 * https://www.shelikesfood.com/mediterranean-chopped-salad-pitas/
