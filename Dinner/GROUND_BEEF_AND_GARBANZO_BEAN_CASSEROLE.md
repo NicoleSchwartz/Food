@@ -12,6 +12,10 @@ GROUND BEEF AND GARBANZO BEAN CASSEROLE
 * 1⁄2 teaspoon ground cumin
 * 1⁄4 teaspoon pepper
 * 2 bay leaves
+* nutmeg
+* allspice
+* bell pepper
+* Try: carrots
 
 ## Directions
 * Preheat oven to 350°F.
@@ -27,3 +31,4 @@ GROUND BEEF AND GARBANZO BEAN CASSEROLE
 * https://www.food.com/user/37640?filter=recipes
 
 ## Attempt
+* 2021-09-27 - needed something - next time try carrots, maybe other veggies?
