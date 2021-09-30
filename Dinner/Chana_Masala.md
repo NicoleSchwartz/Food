@@ -20,6 +20,7 @@
 * 2 cups water if using dry, soaked chickpeas  (or 1/2 cup water if using if canned or fully cooked chickpeas)
 * 1 teaspoon honey or sugar if needed
 * Serve over Basmati Rice or with naan bread! Serve with pickled onions, and raita.
+* bell pepper
 
 ## Directions
 * If using dry beans, soak chickpeas in a bowl with 6 cups water, for 8-12 hours on counter, or up to 24 hours in the fridge. Drain. (See notes for quick instant pot “soak”)
@@ -49,3 +50,5 @@
 * Or, make this on the stovetop with canned chickpeas, following the same directions, only adding  1/4- 1/2 cup water, simmering on low, for 10-15 minutes.
 
 ## Attempt
+* 2021-09-29
+  * skipped cumin seeds, fennel seeds, jalapeno, ginger, coriander, fenugreek  
