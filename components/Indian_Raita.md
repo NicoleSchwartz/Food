@@ -16,3 +16,4 @@ Indian Raita
 * https://www.epicurious.com/recipes/food/views/traditional-indian-raita-242185
 
 ## Attempt
+* 2021-09-29 - no coriander, no gren onions, sub mint for cilantro
