@@ -7,7 +7,7 @@ Ingredients:
 - sour cream
 - salsa
 - tomatoes
-- onions
+- onions / pickled onions
 - lettuce
 - mexican rice, rice, or beans (refried beans, black beans) optional
 - taco shells (soft or hard, corn or flour)
