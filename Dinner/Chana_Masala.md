@@ -21,6 +21,7 @@
 * 1 teaspoon honey or sugar if needed
 * Serve over Basmati Rice or with naan bread! Serve with [pickled onions](https://github.com/NicoleSchwartz/Food/blob/master/components/Quick_Pickled_Onions.md), and [raita](https://github.com/NicoleSchwartz/Food/blob/master/components/Indian_Raita.md).
 * bell pepper
+* summer squash
 
 ## Directions
 * If using dry beans, soak chickpeas in a bowl with 6 cups water, for 8-12 hours on counter, or up to 24 hours in the fridge. Drain. (See notes for quick instant pot “soak”)
