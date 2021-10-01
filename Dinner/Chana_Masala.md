@@ -19,7 +19,7 @@
 * 1 1/2 teaspoons salt (taste, use more if dry chickpeas, less if canned)
 * 2 cups water if using dry, soaked chickpeas  (or 1/2 cup water if using if canned or fully cooked chickpeas)
 * 1 teaspoon honey or sugar if needed
-* Serve over Basmati Rice or with naan bread! Serve with pickled onions, and raita.
+* Serve over Basmati Rice or with naan bread! Serve with [pickled onions](https://github.com/NicoleSchwartz/Food/blob/master/components/Quick_Pickled_Onions.md), and [raita](https://github.com/NicoleSchwartz/Food/blob/master/components/Indian_Raita.md).
 * bell pepper
 
 ## Directions
@@ -50,5 +50,5 @@
 * Or, make this on the stovetop with canned chickpeas, following the same directions, only adding  1/4- 1/2 cup water, simmering on low, for 10-15 minutes.
 
 ## Attempt
-* 2021-09-29
+* 2021-09-29 - ok not exciting, for sure better with the pickled onions, meh on the ratia (but mint not cilantro b/c in-laws and our of coriander)
   * skipped cumin seeds, fennel seeds, jalapeno, ginger, coriander, fenugreek  
