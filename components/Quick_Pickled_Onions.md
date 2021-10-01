@@ -19,4 +19,4 @@ Quick-Pickled Onions
 * https://cookieandkate.com/quick-pickled-onions-recipe/
 
 ## Attempt
-* 2021-09-29
+* 2021-09-29 - came out well!
