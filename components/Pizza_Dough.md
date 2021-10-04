@@ -17,6 +17,24 @@
 * Cover each with a clean kitchen towel or plastic wrap and let them rest for 10 minutes.
 * Cook’s Note - Using bread flour will give you a much crisper crust. If you can't find bread flour, you can substitute it with all-purpose flour which will give you a chewier crust.
 
+## Richard's Pizza dough recipe by weight.
+
+https://gist.github.com/warewolf/6cbb76d38537ca4972f7d66135093d27
+
+| 5 servings | 1 serving | ingredient |
+|------------|-----------| -----------|
+| 500g       |  100g     | white flour |
+| 325g       | 65g       | 110f water |
+| 10g        | 2g        | salt       |
+| 7g         | 1.4g      | dry active yeast |
+| 5g         | 1g        | sugar      |
+
+I make the 5 servings size in a bowl, mix, then divide into five 104.4g dry bags for easy dough making in the future.
+
+Tricks:
+
+Use cold tap water & refridgerate dough if you want to delay its rise.
+
 ## Whole Wheat
 * 1 teaspoon sugar
 * 1 tablespoon instant yeast
@@ -43,24 +61,6 @@ Gently deflate the dough to release trapped air. Divide the dough into three por
 * Step 9 Preheat a 12-inch cast-iron skillet on the stove top, over medium heat, for 3 to 5 minutes. Carefully transfer the dough to the skillet, smoothing it into place with your hands or by sliding and shaking the skillet (use a folded towel or oven mitt since it will be very hot). Allow the dough to start to cook and dry out on bottom (a minute or less; you’ll see it looking less wet and starting to puff).
 * Step 10 Add your toppings, leaving a 1/2- to 3/4-inch border around the edges. Brush the edges of the crust with oil, then sprinkle them with the Parmigiano-Reggiano, if using. Give the dough an additional 30 seconds to 1 minute to cook; this will help ensure the bottom of the crust will be crisped.
 * Step 11 Use oven mitts to transfer the skillet to the oven. Broil the pizza for 3 to 5 minutes, rotating front to back halfway through, until the crust looks puffed and browned. Don’t walk away. A little charring on the crust or toppings is okay, but even a few seconds too much will burn the pizza. Remove the skillet from the oven, then use tongs to transfer the pizza to a wire rack to cool for a few minutes. Transfer the pizza to a cutting board. Cut into slices and serve right away.
-
-## Richard's Pizza dough recipe by weight.
-
-https://gist.github.com/warewolf/6cbb76d38537ca4972f7d66135093d27
-
-| 5 servings | 1 serving | ingredient |
-|------------|-----------| -----------|
-| 500g       |  100g     | white flour |
-| 325g       | 65g       | 110f water |
-| 10g        | 2g        | salt       |
-| 7g         | 1.4g      | dry active yeast |
-| 5g         | 1g        | sugar      |
-
-I make the 5 servings size in a bowl, mix, then divide into five 104.4g dry bags for easy dough making in the future.
-
-Tricks:
-
-Use cold tap water & refridgerate dough if you want to delay its rise.
 
 ## Notes:
 * From Pizza Dough Recipe : Bobby Flay : Food Network https://www.mastercook.com/app/Recipe/WebRecipeDetails?recipeId=2634490 aka https://www.foodnetwork.com/recipes/bobby-flay/pizza-dough-recipe-1921714
