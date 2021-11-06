@@ -1,30 +1,42 @@
 Greek Apple Pie with Phyllo
 
-## Ingredients
-* apples - 3 pcs.
-* walnuts - 50 g
-* raisins - 100 g
-* cinnamon - 1 tsp.
-* lemon juice - ½ pc.
-* phyllo (filo) dough - 400 g
-* butter (melted) - 100 g
-* sugar - 120 g
-* corn starch - 15 g
-* egg - 2 pcs.
-* milk - 250 ml
+## Ingredients, apple filling
+* 3 apples
+* 100g raisons
+* 50g walnuts, crushed
+* half lemon
+
+## Ingredients, crust
+* 400g phyllo dough
+* 100g melted butter
+ 
+## Ingredients, custard
+* 120g sugar
+* 15g corn starch
+* 2 eggs
+* 250 ml milk
+
+## Ingredients, topping
+* powdered sugar
 
 ## Directions
-* peel and core apples, dice
-* crush walnuts
-* add apples, rasins, crushed walnuts, cinnamon and lemonjuice to bowl and stir
-* butter wash phyllo dough
-* top with mixture
-* crinkle (accordian, folk like pleated skirt) on parchment lined baking pan
-* bake 180 C 15 min
-* in a bowl mix corn starch, milk, sugar, eggs and whisk
-* pour sauce over hot phllo
-* bake 5 min 180 with convection
-* slice, top with powdered sugar
+* peel and core and dice apples
+* mix lemon juice, apples, rasins, and walnuts in bowl
+* butter phyllo, each layer, 2 layers
+* top with apple mixture and scrunch up (pleats)
+* place on parchment lined sheet (with edges, jelyroll pan)
+* repeat until out of filling and dough?
+* bake 180c 15 minutes
+* whisk together custard ingredients
+* remove from oven after 15 minutes
+* pour custard over phyllo
+* bake another 5 minutes at 180c with convection
+* slice and serve with powdered sugar
+
+## Notes
+* https://youtu.be/UdQVNpuVc9Y?t=136
+
+## Attempt
 
 ## Notes
 * https://www.youtube.com/watch?v=UdQVNpuVc9Y
