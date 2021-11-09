@@ -35,10 +35,7 @@ Greek Apple Pie with Phyllo
 
 ## Notes
 * https://youtu.be/UdQVNpuVc9Y?t=136
-
-## Attempt
-
-## Notes
 * https://www.youtube.com/watch?v=UdQVNpuVc9Y
 
 ## Attempt
+* 2021-11-08 - turned out yummy! needs more lemon, and needs cinnamon and nutmeg maybe some other spices. https://twitter.com/CircuitSwan/status/1457943504710103044
