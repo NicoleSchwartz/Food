@@ -53,3 +53,25 @@
 ## Attempt
 * 2021-09-29 - ok not exciting, for sure better with the pickled onions, meh on the ratia (but mint not cilantro b/c in-laws and our of coriander)
   * skipped cumin seeds, fennel seeds, jalapeno, ginger, coriander, fenugreek  
+* https://twitter.com/CircuitSwan/status/1456369782719070214
+  * 8oz beet noodles
+  * 6 tomatoes
+  * 1 bag bell peppers
+  * 1 cup lentils
+  * 1 tsp tumeric
+  * 1 tsp fennel seeds
+  * 1 tsp salt
+  * 1 tsp ginger powder
+  * 1/2 tsp coriander
+  * 2 tsp ghee
+  * 1/2 tsp garam masala
+  * 1/2 tsp cardamom
+  * 1/2 tsp cinnamon
+  * 1/2 tsp clove
+  * 1 red onion
+  * 1 garlic clove (ran out)
+  * 2 Tbsp curry powder
+  * 1 head of caulliflower
+  * wanted carrots
+  * water
+  * no honey or bay leaves  
