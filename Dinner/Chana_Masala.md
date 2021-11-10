@@ -57,21 +57,27 @@
   * 8oz beet noodles
   * 6 tomatoes
   * 1 bag bell peppers
-  * 1 cup lentils
-  * 1 tsp tumeric
-  * 1 tsp fennel seeds
-  * 1 tsp salt
-  * 1 tsp ginger powder
-  * 1/2 tsp coriander
-  * 2 tsp ghee
-  * 1/2 tsp garam masala
-  * 1/2 tsp cardamom
-  * 1/2 tsp cinnamon
-  * 1/2 tsp clove
+  * 1 cup split yellow lentils (not chickpeas)
+  * 2 Tbsp ghee
   * 1 red onion
-  * 1 garlic clove (ran out)
-  * 2 Tbsp curry powder
+  * 1 garlic clove (ran out, wanted more)
   * 1 head of caulliflower
-  * wanted carrots
-  * water
-  * no honey or bay leaves  
+  * 3c water (should have done less)
+  * Spices
+    * 1 tsp tumeric
+    * 1 tsp fennel seeds
+    * 1 tsp salt
+    * 1 tsp ginger powder
+    * 1/2 tsp coriander
+    * 1/2 tsp garam masala
+    * 1/2 tsp cardamom
+    * 1/2 tsp cinnamon
+    * 1/2 tsp clove
+    * 2 Tbsp curry powder
+  * Skipped (wanted)
+    * carrots
+    * honey
+    * bay leaves
+    * 2 teaspoons cumin seeds (whole)
+    * 1/2 teaspoon chili powder or paprika
+    * spicy pepper cut up
