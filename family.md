@@ -16,10 +16,10 @@ likes;
 does not like;
 * busy (lots of flavors)
 * heat spice
-* sushi
-* steaks with mushrooms
 
 likes;
+* sushi
+* steaks with mushrooms
 * ice cream
 * hot chocolate
 * bailey's
