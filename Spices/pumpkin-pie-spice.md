@@ -5,8 +5,15 @@
 * 6 teaspoon ground allspice
 * 6 teaspoon ground cloves
 
+By weight (210g total)
+* cinnamon	90g	42.86%
+* ginger	48g	22.86%
+* nutmeg	36g	17.14%
+* allspice	18g	8.57%
+* cloves	18g	8.57%
+
 ## Directions
-* stuff
+* mix and sift
 
 ## Notes
 * https://www.thepioneerwoman.com/food-cooking/recipes/a78588/how-to-make-pumpkin-pie-spice/
