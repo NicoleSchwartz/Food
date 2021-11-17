@@ -26,6 +26,7 @@
 
 ## Notes
 * From Saveur - the new classics cookbook
+* Idea - combine with chef wessely chicken curry recipie! https://github.com/NicoleSchwartz/Food/blob/master/Dinner/chicken_curry.md
 
 ## Allergen Information
 * Can be gluten-free
