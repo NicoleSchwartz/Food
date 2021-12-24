@@ -2,7 +2,7 @@ Butterbeer
 
 ## Ingredients
 * 3 pints -or- 1.5 liters Real Ale
-* 1 inch fresh grated ginger - Here’s the substitution ratio: substitute ¼ teaspoon ground ginger for every 1 tablespoon grated ginger
+* 1 inch fresh grated ginger (search says 1.1 tablespoons) - Here’s the substitution ratio: substitute ¼ teaspoon ground ginger for every 1 tablespoon grated ginger
 * half a teaspoon grated nutmeg
 * 6 cloves
 * 1 cup -or- 225 grams demerara sugar
