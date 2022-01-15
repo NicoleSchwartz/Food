@@ -1,23 +1,35 @@
 ## Ingredients
-*  1 lb ground lamb
-*  potatoes
-*  carrots
-*  peas
-*  corn
-*  1 yellow onion
+* butter
+* sour cream
+* 2 garlic cloves -minced
+* 1 yellow onion
 * 2 teaspoons dried parsley leaves
 * 1 teaspoon dried rosemary leaves
 * 1 teaspoon dried thyme leaves
 * salt and pepper to taste
+* 1 lb ground lamb (sub beef for cottage pie)
 * 2 tablespoon Worcestershire sauce
-* 2 garlic cloves -minced
 * 2 tablespoons tomato paste
+* potatoes
+* carrots
+* peas
+* corn
 * 1 cup broth (veggie, chicken, beef)
 
 ## Directions
-* stuff
+* saute garlic, onions in butter or oil
+* add spices (parsley, rosemary, thyme, sale and pepper) and continue to cook
+* add meat, cook until browned
+* add tomato paste and worcestershire sauce, stir well
+* put into oven dish, layer or bottom
+* add peas, carrots, corn, broth over the layer
+* peel and cut the potatoes, boil in water for 15 minutes
+* mash potatoes with sour cream and butter
+* top the dish with the potatoes
+* Bake at 400° F 25-30 min - if covered uncover last 5-10 min
 
 ## Notes
 * url/source
 
 ## Attempt
+* 2022-01-15 - 
