@@ -25,4 +25,4 @@ Notes
 * look at https://sweets.seriouseats.com/2013/12/the-food-lab-the-best-chocolate-chip-cookies.html and modify as needed
 
 Attempt
-* 2022-02-20 - no nuts, melted butter, flat cookies (should have refridge dough and cooler butter but impatient or used crisco, tasty though, did half in cookies and half in cornbread pan.
+* 2022-02-20 - no nuts, melted butter, flat cookies (should have refridge dough and cooler butter but impatient or used crisco, tasty though, did half in cookies and half in cornbread pan. cookies 10min cornbread pan 18 min
