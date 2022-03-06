@@ -52,3 +52,4 @@
 * tried maple syrup, went over well
 * 2020-10-19 ~1 lb beef, 1/2 onion, 14oz kidney beans, 14oz pinto beans, 28oz tomatoes, 2 T tomato paste, 1 beef bullion, 4+ cloves garlic, 1 1/2 teaspoons salt, 2 1/2 - 3 T chili powder, 2 T cumin, 1.5 tsp nutmeg 
 * 2022-01-08 - 1 Tbl onion powder not fresh onion, 1 Tbl taco seasoning not cumin, 1 Tbl coco, 2 Tbl maple
+* 2022-03-06 - 1 T cumin 1 T coffee 2 T chilli
