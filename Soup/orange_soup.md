@@ -23,3 +23,4 @@ Swedish Apelsinsoppa (Orange Soup)
 * source https://www.youtube.com/watch?v=27wypeWBidk&t=13s
 
 ## Attempt
+* 2022-07-03 - made half but messed up - 4 c orange juice (8 oranges), 3/4 tsp anise seed, 1/4 tsp saffron (should have been 1/8), 1/2 tsp cinnamon chunks, 1 T water, 1 T powdered sugar, 1 T potato starch
