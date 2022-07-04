@@ -28,4 +28,5 @@ Do not settle for ingredients similar to the original one, remember that the res
 •Working on bowl in terracotta (ceramic) container NOT in plastic
 
 ## Attempt
-* 2022-07-03 made the mistake of not checking how much marscapone i had or the instructions so, major substitutions - 275g mascapone, 5 eggs, 8 T white sugar, lady finger cookies, coffeee, coco powder - ende dup with 2 trays of it. mixed the sugar into the whites, realized it was for the yolks so then mixed same amount into yolks. my cheese was also much stiffer than i think it should have been.
+* 2022-07-03 made the mistake of not checking how much marscapone i had or the instructions so, major substitutions - 275g mascapone, 5 eggs, 8 T white sugar, lady finger cookies, coffeee, coco powder - ende dup with 2 trays of it. mixed the sugar into the whites, realized it was for the yolks so then mixed same amount into yolks. my cheese was also much stiffer than i think it should have been. 
+    * Notes - not bad, could have been better, too wet - i think the cookies were too crunchy to start and also i added too much coffee, i like sugar so not too sweet for me, but maybe bad cookie to custard ratio? 
