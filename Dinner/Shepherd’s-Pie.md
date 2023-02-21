@@ -1,6 +1,10 @@
-## Ingredients
+## Ingredients, mashed potatoe
 * butter
 * sour cream
+* potatoes
+* cheese
+
+## Ingredients, pie filling
 * 2 garlic cloves -minced
 * 1 yellow onion
 * 2 teaspoons dried parsley leaves
@@ -10,11 +14,10 @@
 * 1 lb ground lamb (sub beef for cottage pie)
 * 2 tablespoon Worcestershire sauce
 * 2 tablespoons tomato paste
-* potatoes
 * carrots
 * peas
 * corn
-* 1 cup broth (veggie, chicken, beef)
+* 1/2 cup broth (veggie, chicken, beef)
 
 ## Directions
 * saute garlic, onions in butter or oil
@@ -26,10 +29,10 @@
 * peel and cut the potatoes, boil in water for 15 minutes
 * mash potatoes with sour cream and butter
 * top the dish with the potatoes
-* Bake at 400° F 25-30 min - if covered uncover last 5-10 min
+* Bake at 400° F 25-30 min - if covered uncover last 5-10 min, optional add cheese
 
 ## Notes
 * url/source
 
 ## Attempt
-* 2022-01-15 - 
+* 2023-02-20 - too watery, rosemary too crunchy
