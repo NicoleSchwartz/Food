@@ -7,7 +7,7 @@ Ingredients
 - salt to taste
 - 5.6 oz coconut milk 150 ml-180 ml
 - some water
-- Tamarind Juice
+- Tamarind Juice (sub: lemon/lime)
 - 1 cup water
 - tamarind pulp size of a small ping pong ball
 - Sambal Ikan Bilis (Dried Anchovies Sambal)
@@ -34,3 +34,4 @@ Other ingredients
 
 Note:
 - https://rasamalaysia.com/nasi-lemak-recipe/
+- https://www.elmundoeats.com/en/nasi-lemak/
