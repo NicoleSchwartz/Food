@@ -1,11 +1,11 @@
-## Ingredients, mashed potatoe
+## Ingredients, mashed potato
 * butter
 * sour cream
 * potatoes
 * cheese
 
 ## Ingredients, pie filling
-* 2 garlic cloves -minced
+* 2 garlic cloves -minced [sub: garlic ginger paste]
 * 1 yellow onion
 * 2 teaspoons dried parsley leaves
 * 1 teaspoon dried rosemary leaves
@@ -14,9 +14,9 @@
 * 1 lb ground lamb (sub beef for cottage pie)
 * 2 tablespoon Worcestershire sauce
 * 2 tablespoons tomato paste
-* carrots
-* peas
-* corn
+* carrots [or frozen veg mix]
+* peas [or frozen veg mix]
+* corn [or frozen veg mix]
 * 1/2 cup broth (veggie, chicken, beef)
 
 ## Directions
