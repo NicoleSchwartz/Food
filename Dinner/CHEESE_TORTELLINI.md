@@ -39,4 +39,4 @@ CHEESE TORTELLINI
 * https://culinaryginger.com/cheese-tortellini/
 
 ## Attempt
-* Dec 23, 2023
+* Dec 23, 2023 - TOO TOUGH do not use this dough recipie?
