@@ -1,6 +1,6 @@
 Cucumbers in Spicy Peanut Sauce
 
-## Ingredients
+## Ingredients #1
 * 2 large English cucumbers sliced about 1/3rd inch thick
 * 1/2 teaspoon salt
 * 1/2 cup chopped peanuts, toasted
@@ -22,4 +22,17 @@ Cucumbers in Spicy Peanut Sauce
 ## Notes
 * https://www.lordbyronskitchen.com/cucumbers-in-spicy-peanut-sauce/
 
-## Attempt
+## Ingredients #2
+* 1 sliced cucumber
+* soy sauce
+* fish sauce
+* seasme oil
+* chili oil
+* 1 clove grated garlic
+* chopped entire green onion
+* msg
+* seasme seeds
+* sugar
+
+## Notes
+* https://www.tiktok.com/@logagm/video/7524789632739921157
