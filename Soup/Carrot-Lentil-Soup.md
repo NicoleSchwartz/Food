@@ -12,9 +12,10 @@ Carrot Lentil Soup
 * 1 cup milk (I used almond milk, but any other works)
 * Salt to taste
 * water
+  sour cream
 
 ## Directions
-* crock pot, low, everything except lentils and milk, just enough water to cover, overnight
+* crock pot, low, everything except lentils, sour cream and milk, just enough water to cover, overnight
 
 ## Notes
 * [https://vancouverwithlove.com/lentil-carrot-soup/#recipe](https://vancouverwithlove.com/lentil-carrot-soup/#recipe)
