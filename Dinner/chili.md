@@ -1,5 +1,5 @@
 ## Ingredients
-* 1 lb. extra-lean ground beef (or chicken or pork)
+* 1 lb. extra-lean ground beef (or chicken or pork) OR TVP (textured vegetable protein)
 * one large diced onion
 * 1 can (14 fl oz/398 mL) kidney beans, rinsed
 * 1 can (14 fl oz/398 mL) pinto beans, rinsed
@@ -32,12 +32,14 @@
 
 ## Directions
 * put bullion and seasonings in crock pot
-* cook meat and onion in pan then move to crock pot once they are cooked
+* cook meat and onion in pan then move to crock pot once they are cooked OR TVP
 * mix in beans, tomatoes
 * let cook 8+ hours
 * serve over rice or pasta or tortilla chips and top with sour cream and cheese
 
 ## Notes
+* hydrate TVP for 15 minutes water or broth
+* if using dried beans - One 15.5 ounce can of beans = 1 ½ cups cooked = ¾-to-1 cup dried beans AS PER https://www.beansbeansbeans.com/dried-beans-to-canned-conversion-table
 * modify as desired, feel free to swap meats, mix meats, etc
 * i have tried making lapsang souchong tea extra strong and using that in there with the bullion powder, it was meh.
 
@@ -53,3 +55,4 @@
 * 2020-10-19 ~1 lb beef, 1/2 onion, 14oz kidney beans, 14oz pinto beans, 28oz tomatoes, 2 T tomato paste, 1 beef bullion, 4+ cloves garlic, 1 1/2 teaspoons salt, 2 1/2 - 3 T chili powder, 2 T cumin, 1.5 tsp nutmeg 
 * 2022-01-08 - 1 Tbl onion powder not fresh onion, 1 Tbl taco seasoning not cumin, 1 Tbl coco, 2 Tbl maple
 * 2022-03-06 - 1 T cumin 1 T coffee 2 T chilli
+* 2025-11-02 - TVP and dried beans
