@@ -39,7 +39,7 @@
 
 ## Notes
 * hydrate TVP for 15 minutes water or broth
-* if using dried beans - One 15.5 ounce can of beans = 1 ½ cups cooked = ¾-to-1 cup dried beans AS PER https://www.beansbeansbeans.com/dried-beans-to-canned-conversion-table
+* if using dried beans, soak them overnight in water and also boil first b/c acidic slows their cooking - One 15.5 ounce can of beans = 1 ½ cups cooked = ¾-to-1 cup dried beans AS PER https://www.beansbeansbeans.com/dried-beans-to-canned-conversion-table
 * modify as desired, feel free to swap meats, mix meats, etc
 * i have tried making lapsang souchong tea extra strong and using that in there with the bullion powder, it was meh.
 
