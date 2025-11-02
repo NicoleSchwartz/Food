@@ -16,6 +16,9 @@ Carrot Lentil Soup
 
 ## Directions
 * crock pot, low, everything except lentils, sour cream and milk, just enough water to cover, overnight
+* rinse lentils and add next day
+* TBD milk, tbd if rice to serve with/on?
+* Top with sour cream to serve
 
 ## Notes
 * [https://vancouverwithlove.com/lentil-carrot-soup/#recipe](https://vancouverwithlove.com/lentil-carrot-soup/#recipe)
