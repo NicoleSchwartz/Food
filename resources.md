@@ -1,5 +1,8 @@
 Resources and inspiration
 
+## Similar Projects
+* https://nop.codes/recipes/home
+
 ## Reddit
 * https://www.reddit.com/r/povertykitchen/
 * https://www.reddit.com/r/Frugal/
